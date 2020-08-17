@@ -1,0 +1,5 @@
+# Assignment-1
+Assignment one
+Hello! My name is Lilly Hurst and I like all kinds of different music, I often need music playing in the background in order to focus and work well! I like drawing and I do it as a side job. I work at the Fort Wayne Children's Zoo as an Educational Interpreter. In my free time I like doing research on things that interest me, this can be anything from media (like tv shows or literature) to psychology! I'm also a server moderator/admin on multiple Discord servers, you can almost always find me on Discord with it open in the background in case I need to take care of something! I just find general interest in connecting with people over shared interests and doing research on the subject that I am currently interested in. I also really like photography! Usually pictures with complimentary colors and pretty visuals make me happy! Such as the ones below; 
+https://wallpaperaccess.com/full/871983.jpg
+https://i.pinimg.com/originals/5d/4c/98/5d4c98f54d334f71d2cba471a5393dc7.jpg
